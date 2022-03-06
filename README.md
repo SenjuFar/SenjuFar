@@ -1,0 +1,3 @@
+-👋 Hello, I'm @SenjuFar
+- 👀 I am interested in meeting and discussing
+- 🌱 I am currently learning basic programming and English
